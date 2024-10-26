@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @junhao0414
+- heyyyy guys:>im from china and my major is computer science:>
+- 👀 I’m interested in ...eating and staying at home
+- 🌱 I’m currently learning ...html css jscode vue javabasic c mysql
+- 📫 How to reach me ... we can add wechat 18092579979 or ins @qjh30228
